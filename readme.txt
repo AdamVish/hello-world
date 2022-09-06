@@ -1,0 +1,1 @@
+Twoja stara to kopara a twój stary ją odpala
